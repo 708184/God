@@ -1,2 +1,2 @@
 # God
-To whome we dont know but we all know that in the world 
+A spritual power which we all can seem  
